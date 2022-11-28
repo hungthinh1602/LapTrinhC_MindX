@@ -1,1 +1,0 @@
-# LapTrinhC_MindX
